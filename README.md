@@ -1,11 +1,11 @@
-# hola :3 soy Marie Baillet!! ദ്ദി◝ ⩊ ◜.ᐟ
+# Marie Baillet!! ദ്ദി◝ ⩊ ◜.ᐟ
 
   
 
 **DISEÑADORA | COMUNICÓLOGA VISUAL**
   
 
-Bueno mi enfoque profesional es el diseño **editorial** y **tipográfico**, pero también me interesa la música, la cocina, la danza y sobre todo conectar con distintas personas y culturas alrededor del mundo. ૮ ྀིᴗ͈ . ᴗ͈ ྀིა .☘︎ ݁˖
+hola!! bueno mi enfoque profesional es el diseño **editorial** y **tipográfico**, pero también me interesa la música, la cocina, la danza y sobre todo conectar con distintas personas y culturas alrededor del mundo. ૮ ྀིᴗ͈ . ᴗ͈ ྀིა .☘︎ ݁˖
 
   
 
