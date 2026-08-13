@@ -27,7 +27,7 @@ hola!! bueno mi enfoque profesional es el diseño **editorial** y **tipográfico
 
   
 
-*"Indifference kills peace"* Palestina libre 𓂆
+*"Indifference kills peace"*
 
 °࿔*:･°❀⋆.ೃ࿔*:･
 
